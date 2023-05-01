@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-AM-5006/AN-5006
+AM-5006/AM-5006
 
 ## 🌐 Socials:
 
